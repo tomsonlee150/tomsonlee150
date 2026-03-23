@@ -1,4 +1,4 @@
-# Hi, I'm Tom
+# Hi, I'm Tomson Lee
 
 **Founder of [Kario Studio](https://kario-studio.com) / Kario LLC**
 
